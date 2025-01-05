@@ -2,7 +2,7 @@
 - 👀 I’m interested in Game Making
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on nothing lol.
-- 📫 How to reach me nownotnow2000@proton.me
+- 📫 How to reach me NO
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: doesnt know what my password is (i forgot a long time ago)
 
